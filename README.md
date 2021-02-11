@@ -14,7 +14,7 @@
 ## Hobbies
 - I love to watch cricket....And fan of VK....(+_+)
 
-- I love Photography.....(*_*)
+- I love Photography........(=_=)
 
 - I'm good at technology....(<_>)
 
